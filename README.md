@@ -1,3 +1,3 @@
-- 👋 Cześć! Jestem OKIZ3KK, prywatnie developer, programista oraz technik. Publicznie YouTuber.
+- 👋 Cześć! Jestem okizek, prywatnie developer, programista oraz technik. Publicznie YouTuber.
 - 🌱 Właściciel prywatnego bota Reverse.
 - 📫 Kontakt: Discord: OKIZ3KK#7576
